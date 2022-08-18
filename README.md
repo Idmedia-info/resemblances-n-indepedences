@@ -35,7 +35,7 @@ In fact regardless of whether they answer in aggreeance or not, in fact do not k
 Why questionable so simply, fine line of age past dirt skyscraper paper tree?
 Tree paper paper writer computer phone opinion? In list? Great? Facts are mysterious and things are more mysterious 
 
-This is a reference of ownership of my work with Microsoft, Google, and cloudfare
+This is a reference of ownership of my work with Microsoft, Google, and Cloudfare
 
 Whole principal physics
 Prep for distance relationship theoretical physics paper documents
